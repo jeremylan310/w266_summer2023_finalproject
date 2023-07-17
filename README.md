@@ -1,4 +1,4 @@
-W266 Final Project
+W266 Final Project: Michelle Lee & Jeremy Lan
 
 Project Proposal: https://docs.google.com/document/d/1V9uhXOMVhjNbyMFBi2zOkqJTuiMEQto1dinmGq1xKNk/edit?usp=sharing
 
